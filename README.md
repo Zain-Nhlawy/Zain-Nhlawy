@@ -8,6 +8,6 @@
  
  trying to improve my self in many sectors and solving a real world problems  
 
- you can check my activities in linked in 
+ you can check my activities in linkedin 
  https://www.linkedin.com/in/mohammed-zain-nhlawy-067749363/
 
